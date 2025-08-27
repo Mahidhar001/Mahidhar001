@@ -1,16 +1,18 @@
 ## Hi there 👋
 
-<!--
-**Mahidhar001/Mahidhar001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm Mahidhar
 
-Here are some ideas to get you started:
+[Portfolio](https://mahidhar001.github.io)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[X](https://x.com/Mahidhar_001)
+
+[LeetCode](https://leetcode.com/Mahidhar0)
+
+[Google Developer](g.dev/Mahidhar0)
+
+[Google Exceedlms Education](https://edu.exceedlms.com/profiles/mahidharunknownfdc10ba2)
+
+[Google SkillShop Exceedlms](https://skillshop.exceedlms.com/profiles/702a81e246ab4324a784988854cc33f9)
+
+[Mail](mailto:mahidhartatipakala@gmail.com)
+
