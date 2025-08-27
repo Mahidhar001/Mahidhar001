@@ -10,7 +10,7 @@ I'm Mahidhar
 
 [LeetCode](https://leetcode.com/Mahidhar0)
 
-[Google Developer](g.dev/Mahidhar0)
+[Google Developer](https://g.dev/Mahidhar0)
 
 [Google Exceedlms Education](https://edu.exceedlms.com/profiles/mahidharunknownfdc10ba2)
 
