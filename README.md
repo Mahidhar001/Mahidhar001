@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm # Mahidhar
+I'm Mahidhar
 
 ## My Social Links
 
