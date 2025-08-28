@@ -2,6 +2,8 @@
 
 I'm Mahidhar
 
+# Developer
+
 Follow me on [X](https://x.com/Mahidhar_001) and DM me for help.
 
 ## My projecs
