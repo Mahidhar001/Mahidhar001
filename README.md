@@ -2,15 +2,15 @@
 
 I'm Mahidhar
 
-# Developer
+Developer
 
 Follow me on [X](https://x.com/Mahidhar_001) and DM me for help.
 
-## My projecs
+# My projecs
 
 [Imagine Mind](https://imagine-mind.web.app)
 
-## My Social Links
+# My Social Links
 
 [Portfolio](https://mahidhar001.github.io)
 
