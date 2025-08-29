@@ -4,7 +4,7 @@ I'm Mahidhar
 
 Developer
 
-Follow me on [X](https://x.com/Mahidhar_001) and DM me for help.
+Follow me on [X](https://x.com/Mahidhar_001) and [Roblox](https://www.roblox.com/users/8515266461/profile)
 
 # My projecs
 
