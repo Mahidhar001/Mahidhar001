@@ -4,11 +4,13 @@ I'm Mahidhar
 
 Developer
 
-Follow me on [X](https://x.com/Mahidhar_001) and [Roblox](https://www.roblox.com/users/8515266461/profile)
+Follow me on [X](https://x.com/Mahidhar_001) and [Roblox](https://www.roblox.com/users/8515266461/profile).
 
 # My projecs
 
 [Imagine Mind](https://imagine-mind.web.app)
+
+[Real-time Solar System](https://mahidhar001.github.io/realtime-solar-system)
 
 # My Social Links
 
