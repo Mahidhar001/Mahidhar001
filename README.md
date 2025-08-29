@@ -4,7 +4,7 @@ I'm Mahidhar
 
 Developer
 
-Follow me on [X](https://x.com/Mahidhar_001) and [Roblox](https://www.roblox.com/users/8515266461/profile).
+Follow me on [X](https://x.com/Mahidhar_001) , [Roblox](https://www.roblox.com/users/8515266461/profile) and [Duolingo](https://www.duolingo.com/profile/Mahidhar0).
 
 # My projecs
 
@@ -19,6 +19,8 @@ Follow me on [X](https://x.com/Mahidhar_001) and [Roblox](https://www.roblox.com
 [X](https://x.com/Mahidhar_001)
 
 [LeetCode](https://leetcode.com/Mahidhar0)
+
+[Duolingo](https://www.duolingo.com/profile/Mahidhar0)
 
 [Google Developer](https://g.dev/Mahidhar0)
 
