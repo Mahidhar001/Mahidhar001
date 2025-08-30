@@ -2,7 +2,7 @@
 
 I'm Mahidhar
 
-Developer
+Student & Developer
 
 Follow me on [X](https://x.com/Mahidhar_001) , [Roblox](https://www.roblox.com/users/8515266461/profile) and [Duolingo](https://www.duolingo.com/profile/Mahidhar0).
 
