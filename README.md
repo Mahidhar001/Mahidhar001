@@ -10,8 +10,6 @@ Follow me on [X](https://x.com/Mahidhar_001) , [Roblox](https://www.roblox.com/u
 
 [Imagine Mind](https://imagine-mind.web.app)
 
-[Real-time Solar System](https://mahidhar001.github.io/realtime-solar-system)
-
 # My Social Links
 
 [Portfolio](https://mahidhar001.github.io)
