@@ -8,7 +8,7 @@ Follow me on [X](https://x.com/Mahidhar_001) , [Roblox](https://www.roblox.com/u
 
 # My projecs
 
-[Imagine Mind](https://imagine-mind.web.app)
+### [Imagine Mind](https://imagine-mind.web.app)
 
 # My Social Links
 
