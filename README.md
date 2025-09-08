@@ -22,18 +22,6 @@
 
 ### [Duolingo](https://www.duolingo.com/profile/Mahidhar0)
 
-### [Google Developer](https://g.dev/Mahidhar0)
-
-### [Google Exceedlms Education](https://edu.exceedlms.com/profiles/mahidharunknownfdc10ba2)
-
-### [Google SkillShop Exceedlms](https://skillshop.exceedlms.com/profiles/702a81e246ab4324a784988854cc33f9)
-
-### [Mail](mailto:mahidhartatipakala@gmail.com)
-
 ### [Roblox](https://www.roblox.com/users/8515266461/profile)
 
 ### [Discord](https://discord.com/users/1396512147193856034)
-
-### [w3schools](https://www.w3profile.com/Mahidhar/)
-
-### [Google Product Expert](https://support.google.com/profile/364974581)
