@@ -2,7 +2,7 @@
 
 ### I'm Mahidhar 🙋
 
-### Student & Developer
+### Student & Developer 🧑‍🎓 
 
 ### [Join Instabyte](https://instabyte.io/subscribe?ref=QLDhFyXXv0)
 
@@ -11,7 +11,6 @@
 # My projecs
 
 ### [Imagine Mind](https://imagine-mind.web.app)
-
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/1396512147193856034) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/@Mahidhar_001) 
