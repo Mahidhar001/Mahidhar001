@@ -1,8 +1,8 @@
-## Hi there 👋
-
 ### I'm Mahidhar 🙋
 
 ### Student & Developer 🧑‍🎓 
+
+### ASK ME ANYTHING
 
 ### [Join Instabyte](https://instabyte.io/subscribe?ref=QLDhFyXXv0) for free.
 
