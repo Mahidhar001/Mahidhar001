@@ -1,6 +1,6 @@
 ### I'm Mahidhar 🙋
 
-### Student & Developer 
+### Student & Full stack Developer 
 
 ###### ASK ANYTHING
 
