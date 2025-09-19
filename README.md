@@ -1,4 +1,4 @@
-### I'm Mahidhar 🙋
+### I'm Mahidhar 🙋 
 
 ### Student & Full stack Developer | GPE
 
