@@ -1,7 +1,5 @@
 ### I'm Mahidhar 🙋 
 
-### Student & Full stack Developer | GPE
-
 ###### ASK ME ANYTHING
 
 ### [Join Instabyte](https://instabyte.io/subscribe?ref=QLDhFyXXv0) for free.
