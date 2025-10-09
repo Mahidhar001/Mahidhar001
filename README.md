@@ -4,7 +4,7 @@
  
 ### [Join](https://instabyte.io/subscribe?ref=QLDhFyXXv0) Instabyte for free.
 
-### Follow me on [X](https://x.com/Mahidhar_001) , [Roblox](https://www.roblox.com/users/8515266461/profile) , [Duolingo](https://www.duolingo.com/profile/Mahidhar_01), [Discord](https://discord.gg/1396512147193856034) .
+### Follow me on [X](https://x.com/Mahidhar_001) , [Roblox](https://www.roblox.com/users/8515266461/profile), [Discord](https://discord.gg/1396512147193856034) .
 
 # My projects
 
