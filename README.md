@@ -1,4 +1,4 @@
-### I'm Mahidhar 🙋 
+# Hi there, I'm Mahidhar 🙋 
 
 ### My [Portfolio](https://mahidhar001.github.io)
  
