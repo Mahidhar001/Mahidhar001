@@ -1,8 +1,6 @@
 # Hi there, I'm Mahidhar 🙋 
 
 ### My [Portfolio](https://mahidhar001.github.io)
- 
-### [Join](https://instabyte.io/subscribe?ref=QLDhFyXXv0) Instabyte for free.
 
 ### Follow me on [X](https://x.com/Mahidhar_001) , [Roblox](https://www.roblox.com/users/8515266461/profile), [Discord](https://discord.gg/1396512147193856034) .
 
